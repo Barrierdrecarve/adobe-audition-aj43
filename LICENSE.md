@@ -1,4 +1,4 @@
-# 
+# Secret Vegas Pro for PC addons is the best Vegas Pro for PC addons with MIDI-editing and normalization. Safe, reliable, and optimized for maximum performance.
 
 
 
